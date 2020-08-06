@@ -1,4 +1,4 @@
-### Hi there!!! It's me Pratikh 👋 
+### Hi !!! It's me Pratikhya(Pratikh)👋 
 
 Gist about me:
 
