@@ -7,6 +7,6 @@ Gist about me:
 - 🌱 Learning everyday about new developements in AI, Edge Computing and ASICs.
 - 👯 I’m looking for collabration and working in new technology fields.
 - 📝 Want to read something [interesting!!!](https://pratikhyamanas.medium.com/)
-- 📫 How to reach me: [Let's get in touch!!!](https://www.linkedin.com/in/manaspratikh/)
+- 📫 How to reach me: [Let's get in touch!!!](https://www.linkedin.com/in/pratikhyamanas/)
 - ⚡ Hobbies: Travelling, Reading & Playing Sports
 
